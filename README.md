@@ -3,9 +3,9 @@
 - ! I’m currently learning: Coding
   
 - Pronouns: any
--  !Things I like: Omori, Shadow house, Coding, Pony town and much other like animals! I like sea animal's also 🌊 
+-  !Things I like: Omori, Shadow house, Coding, Pony town and much other like animals! I like sea animal's also 🌊 i also have music taste like alex g!
 
-I also get a bit yappy when I'm comfortable around you! an ADHD person aswell!
+` — 🎧 I also get a bit yappy when I'm comfortable around you! an ADHD person aswell!
 
 I'm usually chill around people! Omori fans also int!! :>
 <!---
